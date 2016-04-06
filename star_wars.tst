@@ -1,4 +1,4 @@
-Darth _name_ looked at his master while his _adjective_ breathing filled
+Darth _Toms_ looked at his master while his _adjective_ breathing filled
 the room. He was told to go to _verb_ everything on the planet of _silly word_.
 He got in his _noun_ and jumped to hyperspace. Soon before he reached the
 planet, he dropped out of hyperspace and was attacked by Rebel _noun (plural)_.
